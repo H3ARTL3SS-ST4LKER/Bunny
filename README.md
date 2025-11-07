@@ -7,7 +7,7 @@
 
 « ✦ —⋆——― ꒰ঌ·✦·໒꒱ ———⋆— ✦ »
 
-ᯓ★ I'm Enzo, But you can call me by character, mafioso perfered.
+ᯓ★ I'm Enzo, But you can call me by character.
 
 ᯓ★ Any pronouns, He/him mostly.
 
